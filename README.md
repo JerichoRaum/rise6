@@ -1,7 +1,10 @@
-# rise6
-rise6 source
-info;
-ru:
+ru:                
+
+
+
+
+
+
 Я не понимаю геев. Как мог кто-нибудь дойти до мысли о том, чтобы снять одежду с молоденького, худенького, длинноволосого парня и лизать его 
 крошечное стройное тело, покусывая шею и целуя его очаровательные соски? Только бессердечный монстр может думать о его симпатичном ротике и 
 язычке, обёрнутом вокруг толстого члена, смягчающегося слюной, входящим выходящим из его рта, пока он не кончит больше, чем его маленькое горло 
@@ -18,6 +21,17 @@ ru:
 измотанном теле, а он пытается отдышаться, обхватывая вас своими крошечными пальчиками, ощущая, как член снова входит.
 
 tr:
+
+
+
+
+
+
+
+
+
+
+
 gayleri anlamıyorum Nasıl olur da genç, sıska, uzun saçlı bir erkeği alt etmeyi ve onun minik, narin vücudunu yalamayı, boynunu ısırmayı ve sevimli meme uçlarını 
 öpmeyi düşünebilirdi ki? Sadece kalpsiz bir canavar, küçük boğazının yutabileceğinden daha fazla gelene kadar ağzına giren ve çıkan tükürükle yumuşamış kalın bir 
 horozun etrafına sarılı güzel ağzını ve dilini düşünebilir. İnce, viskoz spermin ağzını doldurması, çenesinden düz göğsüne damlayarak minik ellerine damlaması ve onu 
